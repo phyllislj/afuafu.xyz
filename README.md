@@ -1,3 +1,3 @@
-# afuafu.xyz
+# www.afuafu.xyz
 短信轰炸机 sex资源等 仅需3元即可入手 转卖可大赚
 一个全网罕见资源收集网站
